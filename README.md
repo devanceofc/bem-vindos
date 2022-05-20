@@ -1,2 +1,11 @@
-# bem-vindos
-Bem vindos repo
+# Seja Bem-vindo
+
+A **DEVANCE** é a plataforma que te proporciona diversas *oportunidades* de trabalhos rápidos para atuar como freelancer são diversos projetos de categorias diferentes para que você possa ganhar dinheiro e experiência de forma prática e rápida. 
+
+Realize seu cadastro ainda hoje e aproveite todas essas vantagens, o cadastro é totalmente grátis não cobramos mensalidades nem fidelidade 👍
+
+### ACESSE:
+
+[https://devance.com.br](https://devance.com.br)
+
+------------------------------------------------------------------------
