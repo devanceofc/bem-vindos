@@ -6,8 +6,16 @@ A **DEVANCE** é a plataforma que te proporciona diversas *oportunidades* de tra
 
 Realize seu cadastro ainda hoje e aproveite todas essas vantagens, o cadastro é totalmente grátis não cobramos mensalidades nem fidelidade 👍
 
-### ACESSE:
+------------------------------------------------------------------------
+
+### ACESSE O SITE:
 
 [https://devance.com.br](https://devance.com.br)
+
+------------------------------------------------------------------------
+
+### CÁLCULE O VALOR DA SUA HORA TRABALHADA:
+
+[https://devance.com.br/hora-trabalhada](https://devance.com.br/hora-trabalhada)
 
 ------------------------------------------------------------------------
