@@ -1,3 +1,5 @@
+![banner](https://devance.com.br/site/img/banner-email.jpg "devance").
+
 # Seja Bem-vindo
 
 A **DEVANCE** é a plataforma que te proporciona diversas *oportunidades* de trabalhos rápidos para atuar como freelancer são diversos projetos de categorias diferentes para que você possa ganhar dinheiro e experiência de forma prática e rápida. 
